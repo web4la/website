@@ -2,7 +2,7 @@
 Serving the community of South LA 🌃📈
 with a full-professional service. 
 
-(Free Consulting Sessions, Web Design, Web Development, Web Marketing SEO, and Maintaince)
+(Free Consulting Sessions, Web Design, Web Development, Web Marketing SEO, and Maintenance)
 
 # Contact Us 
 Josue Lopez
