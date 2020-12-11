@@ -9,6 +9,6 @@ Founder, Team Lead
 
 (714) 602-3968
 
-josue-lopez.appspot.com/services for more information
+https://www.lopezjosue.com/#contact for more information
 
 
